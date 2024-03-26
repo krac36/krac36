@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **rvolive@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1RM1e-Dvpr1wCiGkkAtixOmahvBrVLTgk/view?usp=sharing](https://drive.google.com/file/d/1RM1e-Dvpr1wCiGkkAtixOmahvBrVLTgk/view?usp=sharing)
+- 📄 Know about my experiences [My CV](https://drive.google.com/file/d/1HfJEeTmSIM2m9RdFjQCmYlyz9mH_ABW9/view?usp=sharing)
 
 - ⚡ Fun fact **I am a gamer**
 
